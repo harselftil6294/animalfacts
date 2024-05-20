@@ -1,1 +1,1 @@
-The proboscis monkey, native to Borneo, has an unusually large nose that serves as a resonating chamber for its loud calls and as a display during courtship rituals.
+The average lifespan of a cat is around 12 to 15 years, although indoor cats tend to live longer than outdoor cats due to reduced exposure to risks like traffic and predators.
