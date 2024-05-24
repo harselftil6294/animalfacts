@@ -1,1 +1,1 @@
-The axolotl, a type of salamander native to Mexico, has the remarkable ability to regenerate lost limbs, organs, and even parts of its brain.
+Dogs use body language, vocalizations, and scent cues to communicate with each other and with humans, conveying emotions like fear, happiness, and submission.
