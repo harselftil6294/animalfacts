@@ -1,1 +1,1 @@
-The oldest recorded cat, Creme Puff, lived to be 38 years and 3 days old, according to the Guinness World Records.
+There are over 340 recognized dog breeds worldwide, each with its own unique characteristics and traits.
