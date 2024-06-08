@@ -1,1 +1,1 @@
-The mantis shrimp has the most complex eyesight of any animal, with 16 color-receptive cones compared to humans' three.
+There are over 70 recognized cat breeds worldwide, each with its own unique characteristics, coat patterns, and personalities.
