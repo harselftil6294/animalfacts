@@ -1,1 +1,1 @@
-There are over 70 recognized cat breeds worldwide, each with its own unique characteristics, coat patterns, and personalities.
+The average lifespan of a cat is around 12 to 15 years, although indoor cats tend to live longer than outdoor cats due to reduced exposure to risks like traffic and predators.
