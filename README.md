@@ -1,1 +1,1 @@
-Dogs are highly social animals that form strong bonds with their owners and other dogs, often exhibiting behaviors like licking, wagging their tails, and leaning against them for comfort.
+The proboscis monkey, native to Borneo, has an unusually large nose that serves as a resonating chamber for its loud calls and as a display during courtship rituals.
