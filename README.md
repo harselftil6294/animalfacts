@@ -1,1 +1,1 @@
-The cheetah holds the title of the fastest land animal, reaching speeds of up to 60 to 70 miles per hour in short bursts.
+A dog's sense of smell is so acute that they can detect certain diseases, like cancer and diabetes, by sniffing a person's breath or urine.
