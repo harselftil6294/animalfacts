@@ -1,1 +1,1 @@
-A dog's sense of smell is so acute that they can detect certain diseases, like cancer and diabetes, by sniffing a person's breath or urine.
+Cats are natural hunters with sharp claws, keen eyesight, and excellent agility, allowing them to stalk and capture prey with precision.
