@@ -1,1 +1,1 @@
-Cats are natural hunters with sharp claws, keen eyesight, and excellent agility, allowing them to stalk and capture prey with precision.
+The proboscis monkey, native to Borneo, has an unusually large nose that serves as a resonating chamber for its loud calls and as a display during courtship rituals.
