@@ -1,1 +1,1 @@
-The proboscis monkey, native to Borneo, has an unusually large nose that serves as a resonating chamber for its loud calls and as a display during courtship rituals.
+Crows and ravens are among the most intelligent birds, capable of problem-solving, tool use, and even recognizing human faces.
