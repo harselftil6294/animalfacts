@@ -1,1 +1,1 @@
-The cheetah holds the title of the fastest land animal, reaching speeds of up to 60 to 70 miles per hour in short bursts.
+The peregrine falcon is the fastest animal on Earth, capable of diving at speeds of over 240 miles per hour when hunting prey.
