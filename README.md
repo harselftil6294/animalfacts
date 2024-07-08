@@ -1,1 +1,1 @@
-Dogs are pack animals by nature and thrive on social interaction, which is why they may experience separation anxiety when left alone for extended periods.
+The blue whale is the largest animal ever known to have existed, with lengths of up to 100 feet and weights of up to 200 tons.
