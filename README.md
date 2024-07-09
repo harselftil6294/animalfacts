@@ -1,1 +1,1 @@
-The blue whale is the largest animal ever known to have existed, with lengths of up to 100 feet and weights of up to 200 tons.
+Dogs use body language, vocalizations, and scent cues to communicate with each other and with humans, conveying emotions like fear, happiness, and submission.
