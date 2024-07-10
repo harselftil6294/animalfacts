@@ -1,1 +1,1 @@
-Dogs use body language, vocalizations, and scent cues to communicate with each other and with humans, conveying emotions like fear, happiness, and submission.
+The honeybee queen is the only sexually mature female in a colony and can lay up to 2,000 eggs per day during the peak of the breeding season.
