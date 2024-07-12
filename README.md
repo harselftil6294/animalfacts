@@ -1,1 +1,1 @@
-The honeybee queen is the only sexually mature female in a colony and can lay up to 2,000 eggs per day during the peak of the breeding season.
+The mantis shrimp has the most complex eyesight of any animal, with 16 color-receptive cones compared to humans' three.
