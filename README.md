@@ -1,1 +1,1 @@
-The mantis shrimp has the most complex eyesight of any animal, with 16 color-receptive cones compared to humans' three.
+The oldest recorded cat, Creme Puff, lived to be 38 years and 3 days old, according to the Guinness World Records.
