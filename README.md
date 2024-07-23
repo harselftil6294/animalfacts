@@ -1,1 +1,1 @@
-Dogs are pack animals by nature and thrive on social interaction, which is why they may experience separation anxiety when left alone for extended periods.
+The Afghan Hound, despite its elegant appearance, ranks lowest in terms of obedience and working intelligence among dog breeds.
