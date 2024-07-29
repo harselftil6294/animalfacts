@@ -1,1 +1,1 @@
-There are over 340 recognized dog breeds worldwide, each with its own unique characteristics and traits.
+The Afghan Hound, despite its elegant appearance, ranks lowest in terms of obedience and working intelligence among dog breeds.
