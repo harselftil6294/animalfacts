@@ -1,1 +1,1 @@
-The Afghan Hound, despite its elegant appearance, ranks lowest in terms of obedience and working intelligence among dog breeds.
+Breeds like German Shepherds, Labrador Retrievers, and Golden Retrievers are commonly used as police and military dogs due to their intelligence, loyalty, and trainability.
