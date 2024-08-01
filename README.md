@@ -1,1 +1,1 @@
-There are over 340 recognized dog breeds worldwide, each with its own unique characteristics and traits.
+Proper nutrition is vital for dogs' overall well-being, with balanced diets tailored to their age, size, and activity level.
