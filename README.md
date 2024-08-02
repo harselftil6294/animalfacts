@@ -1,1 +1,1 @@
-Proper nutrition is vital for dogs' overall well-being, with balanced diets tailored to their age, size, and activity level.
+The star-nosed mole has a distinctive star-shaped appendage on its snout, which it uses to detect prey underwater through touch.
